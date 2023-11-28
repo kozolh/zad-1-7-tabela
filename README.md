@@ -1,0 +1,1 @@
+# zad-1-7-tabela
